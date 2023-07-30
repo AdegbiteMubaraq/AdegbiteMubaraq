@@ -13,3 +13,5 @@
 ⚡ Fun fact: I'm a badass Direct Response Copywriter and Marketer before moving into Data Science
 
 ⚡ Lover of Web3 Blockchain Technology and Quantitative Finance
+
+📈 I also trade the financial markets (Forex and Stocks)
